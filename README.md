@@ -9,4 +9,4 @@ Meu nome é Eduarda
 ### Você pode entrar em contato comigo 📫
 
 silva.rosa.eduarda@escola.pr.gov.br
-
+@eduarda_rosa9002
